@@ -11,6 +11,10 @@ ___
 
 ## [Day 2](https://genuary.art/prompts#jan2) - Dithering.
 
+[Twitter Post](https://twitter.com/RaphaelS101/status/1477680598193999878)
+
+<img width="634" alt="Screenshot 2022-01-02 at 16 39 02" src="https://user-images.githubusercontent.com/25639974/147882690-7d717847-e4a7-4107-9330-10394ba704d7.png">
+
 
 ___
 
