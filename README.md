@@ -27,10 +27,17 @@ ___
 
 ## [Day 4](https://genuary.art/prompts#jan4) - The next next Fidenza.
 
+[Twitter Post](https://twitter.com/RaphaelS101/status/1478450678590750727)
+
+![FISCdFxXoAIp-bl](https://user-images.githubusercontent.com/25639974/148216805-17b30ade-69d3-4ae0-a0fd-ab8b61472dc0.jpg)
 
 ___
 
 ## [Day 5](https://genuary.art/prompts#jan5) - Destroy a square.
+
+[Twitter Post](https://twitter.com/RaphaelS101/status/1478702651764269056)
+
+![Day5](https://user-images.githubusercontent.com/25639974/148216824-6ef61018-a40f-4bc6-b8cc-7715f3c958a9.png)
 
 
 ___
