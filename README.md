@@ -37,8 +37,7 @@ ___
 
 [Twitter Post](https://twitter.com/RaphaelS101/status/1478702651764269056)
 
-![Day5](https://user-images.githubusercontent.com/25639974/148216824-6ef61018-a40f-4bc6-b8cc-7715f3c958a9.png)
-
+![Day5](https://user-images.githubusercontent.com/25639974/148216948-de1c5d78-0a8f-40ed-afc4-be3d318675d8.png)
 
 ___
 
