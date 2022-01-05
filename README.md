@@ -15,11 +15,13 @@ ___
 
 <img width="634" alt="Screenshot 2022-01-02 at 16 39 02" src="https://user-images.githubusercontent.com/25639974/147882690-7d717847-e4a7-4107-9330-10394ba704d7.png">
 
-
 ___
 
 ## [Day 3](https://genuary.art/prompts#jan3) - Space.
 
+[Twitter Post](https://twitter.com/RaphaelS101/status/1478088283154489348)
+
+<img width="709" alt="Screenshot 2022-01-03 at 19 36 17" src="https://user-images.githubusercontent.com/25639974/147972670-ec9afcd1-0d2f-4f1c-af31-45db99e03f2f.png">
 
 ___
 
